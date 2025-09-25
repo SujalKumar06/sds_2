@@ -5,6 +5,5 @@ Hi yoogi, when are you going home!?
 
 ##########################################
 
-I know veer is good (crazy also)
-
+session by veer is good.
 ##########################################
