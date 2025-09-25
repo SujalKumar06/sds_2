@@ -5,6 +5,6 @@ Hi yoogi, when are you going home!?
 
 ##########################################
 
-[Enter the fun thing by replacing this line]
+Yoogi lives on the tree on playfield avenue with the bats.
 
 ##########################################
