@@ -5,6 +5,6 @@ Hi yoogi, when are you going home!?
 
 ##########################################
 
-I know veer is good (crazy also)
+Yo mama so poor, she cant even pay attention
 
 ##########################################
