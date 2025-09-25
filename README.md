@@ -5,6 +5,6 @@ Hi yoogi, when are you going home!?
 
 ##########################################
 
-[Enter the fun thing by replacing this line]
+Yo mama so poor, she cant even pay attention
 
 ##########################################
